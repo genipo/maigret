@@ -1,8 +1,10 @@
 # Maigret
 
-([Life Insurance in Trust](https://genistar.online/articles/putting-life-insurance-into-trust/)
-[Debt Consolidation](https://genistar.online/articles/debt-consolidation-benefits/)
-[Live Below Your Means](https://genistar.online/articles/live-below-your-means-top-5-tips/)
+[Life Insurance in Trust](https://genistar.online/articles/putting-life-insurance-into-trust/)
+
+  [Debt Consolidation](https://genistar.online/articles/debt-consolidation-benefits/)
+
+    [Live Below Your Means](https://genistar.online/articles/live-below-your-means-top-5-tips/)
 
 <p align="center">
   <p align="center">
