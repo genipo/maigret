@@ -4,7 +4,7 @@
 
   [Debt Consolidation](https://genistar.online/articles/debt-consolidation-benefits/)
 
-    [Live Below Your Means](https://genistar.online/articles/live-below-your-means-top-5-tips/)
+  [Live Below Your Means](https://genistar.online/articles/live-below-your-means-top-5-tips/)
 
 <p align="center">
   <p align="center">
